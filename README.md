@@ -7,4 +7,4 @@
 - 🔎 Looking for a summer internship!
 - 📬 Contact: tastypeanut@outlook.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love rock climbing 🧗, hiking 🥾 and being out in the open ☀️
+- ⚡ Fun fact: I love rock climbing 🧗, hiking 🥾 and being out in nature 🍃
