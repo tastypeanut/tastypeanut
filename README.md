@@ -5,6 +5,6 @@
 - 🔭 I’m currently building my personal website (Hugo, GitHub Pages & Cloudflare).
 - 🌱 Working through Portswigger's Web Security Academy courses.
 - 🔎 Looking for a summer internship!
-- 📬 Contact: tastypeanut@outlook.com
+- 📬 Contact: tastypeanut+github@outlook.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love rock climbing 🧗, hiking 🥾 and being out in nature 🌄
